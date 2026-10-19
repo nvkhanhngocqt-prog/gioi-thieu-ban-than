@@ -9,6 +9,6 @@ Tôi là sinh viên năm 2, ngành sư phạm Tin học của trường Đại h
 ### Thông tin liên hệ
 * **Email:** [nvkhanhngocqt@gmail.com](mailto:nvkhanhngocqt@gmail.com)
 * **Facebook:** [Trang Facebook cá nhân](https://www.facebook.com/ngoc.nguyenvietkhanh)
-> "Các vua Hùng đã có công dựng nướ, Bác cháu ta phải cùng nhau giữ lấy nước."
+> "Các vua Hùng đã có công dựng nước, Bác cháu ta phải cùng nhau giữ lấy nước."
 > 
 > — **Chủ tịch Hồ Chí Minh**
